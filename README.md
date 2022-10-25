@@ -1,2 +1,2 @@
 # HackaThown2K22
-Electrified Minds
+Equipe: Electrified Minds
